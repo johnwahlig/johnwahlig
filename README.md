@@ -1,4 +1,4 @@
-**Wahlig Software** Founder & CEO
+**Wahlig Software LLC** Founder & CEO
 
 **Yale University** Computer Science & Economics, Class of 2024
 
