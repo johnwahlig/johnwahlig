@@ -6,4 +6,4 @@
 
 **The White House** 2020 U.S. Presidential Scholar
 
-**Apple Inc.** WWDC18 Scholar
+**Apple Inc.** WWDC18 Scholar, Apple Certified Macintosh Technician
