@@ -4,6 +4,6 @@
 
 **United States Senate** Former Senate Page
 
-**White House** 2020 U.S. Presidential Scholar
+**The White House** 2020 U.S. Presidential Scholar
 
-**Apple** WWDC18 Scholar
+**Apple Inc.** WWDC18 Scholar
